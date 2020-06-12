@@ -22,5 +22,5 @@ Le fracas des armes dura jusqu'au soir. Enfin, on entendit le chef ennemi souffl
 L'envahisseur a été repoussé et le capitaine souffla de soulagement. Mais il ne s'accorda qu'un instant de répit car il devait organiser la prise en charge des blessés et réfléchir à la stratégie de la prochaine bataille. 
 Malheureusement ce n'était que le **début**.
 
-![To be continued](https://img.pngio.com/jojo-to-be-continued-png-112-images-in-collection-page-1-jojo-to-be-continued-png-260_180.jpg)
+![To be continued](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/eba27dc1-9e69-4fbe-925f-93a3cae39644/daaep6v-7d9243e6-266d-468c-8ab2-afa3c6e82f1a.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOiIsImlzcyI6InVybjphcHA6Iiwib2JqIjpbW3sicGF0aCI6IlwvZlwvZWJhMjdkYzEtOWU2OS00ZmJlLTkyNWYtOTNhM2NhZTM5NjQ0XC9kYWFlcDZ2LTdkOTI0M2U2LTI2NmQtNDY4Yy04YWIyLWFmYTNjNmU4MmYxYS5wbmcifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6ZmlsZS5kb3dubG9hZCJdfQ.tQ3WDHGxkh4Fg2P81xuyTy21aU-HC4pE0YzNCahK93o)
 ![NOOOOOOOOOOOOOOOOOOOOOOOOOO](https://i.redd.it/vxdxmnbn6sn01.jpg)
