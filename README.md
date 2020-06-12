@@ -9,3 +9,12 @@ Tout à coup, le cor de guerre **retentit**. Le camp adverse se mis à charger a
 Les **archers** "crachèrent" leurs flèchent, décimant les premières lignes adverses. 
 Les **cavaliers** se mirent en *branle* et ouvrirent une brèche chez l'opposant. 
 L'**infanterie** ne tenait plus. L'assaut était *imminent* !
+
+Le fracas des armes dura jusqu'au soir. Enfin, on entendit le chef ennemi souffler dans son cor. 
+
+>> IL SONNE LA RETRAITE !!
+
+L'envahisseur avait été repoussé et le capitaine souffla de soulagement. Mais il ne s'accorda qu'un instant de répit car déjà il devait organiser la prise en charge des blessés et réfléchir à la stratégie de la prochaine bataille. 
+Car malheureusement **tout** devait recommencer.
+
+**FIN**
