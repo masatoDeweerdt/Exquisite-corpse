@@ -1,5 +1,5 @@
 # Exquisite-corpse
-Les soldats se tenaient *immobile* dans les tranchées. Le **silence** pesait lourdement sur leurs épaules. Retenant leur *souffle* dans le **miasme** insoutenable de cette plaine jonchée de **cadavres**.
+Les soldats se tenaient *immobile* dans les tranchées. Le **silence** pesait lourdement sur leurs épaules. Retenant leurs *souffles* dans le **miasme** insoutenable de cette plaine jonchée de **cadavres**.
 
 Tout à coup, le cor de guerre **retentit**. Le camp adverse se mis à charger avec *rage* vers les tranchées. Le **capitaine** donna l'ordre :
 * aux archers de tirer à son commandement
@@ -14,7 +14,7 @@ Le fracas des armes dura jusqu'au soir. Enfin, on entendit le chef ennemi souffl
 
 >> IL SONNE LA RETRAITE !!
 
-L'envahisseur avait été repoussé et le capitaine souffla de soulagement. Mais il ne s'accorda qu'un instant de répit car déjà il devait organiser la prise en charge des blessés et réfléchir à la stratégie de la prochaine bataille. 
-Car malheureusement **tout** devait recommencer.
+L'envahisseur a été repoussé et le capitaine souffla de soulagement. Mais il ne s'accorda qu'un instant de répit car il doit organiser la prise en charge des blessés et réfléchir à la stratégie de la prochaine bataille. 
+Car malheureusement ce n'était que le **début**.
 
 **FIN**
