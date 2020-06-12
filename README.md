@@ -22,4 +22,4 @@ Le fracas des armes dura jusqu'au soir. Enfin, on entendit le chef ennemi souffl
 L'envahisseur a été repoussé et le capitaine souffla de soulagement. Mais il ne s'accorda qu'un instant de répit car il devait organiser la prise en charge des blessés et réfléchir à la stratégie de la prochaine bataille. 
 Malheureusement ce n'était que le **début**.
 
-![To be continued](https://w7.pngwing.com/pngs/973/968/png-transparent-gray-to-be-continued-arrow-jojo-s-bizarre-adventure-rohan-kishibe-roundabout-manga-original-video-animation-to-be-continued.png)
+![To be continued](https://img.pngio.com/jojo-to-be-continued-png-112-images-in-collection-page-1-jojo-to-be-continued-png-260_180.jpg)
