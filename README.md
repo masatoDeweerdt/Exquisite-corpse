@@ -1,2 +1,2 @@
 # Exquisite-corpse
-group mission
+Les soldats se tenaient *emphasis*immobile*emphasis* dans les tranchées. Le **strong**silence**strong** pesait lourdement sur leurs épaules. Retenant leur *emphasis*souffle*emphasis* dans le **strong**miasme**strong** insoutenable de cette plaine jonchée de **strong**cadavres**strong**.
