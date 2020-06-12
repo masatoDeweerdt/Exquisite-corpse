@@ -1,2 +1,2 @@
 # Exquisite-corpse
-Les soldats se tenaient *emphasis*immobile*emphasis* dans les tranchées. Le **strong**silence**strong** pesait lourdement sur leurs épaules. Retenant leur *emphasis*souffle*emphasis* dans le **strong**miasme**strong** insoutenable de cette plaine jonchée de **strong**cadavres**strong**.
+Les soldats se tenaient *emphasis*immobile*emphasis* dans les tranchées. Le **silence** pesait lourdement sur leurs épaules. Retenant leur *souffle* dans le **miasme** insoutenable de cette plaine jonchée de **cadavres**.
