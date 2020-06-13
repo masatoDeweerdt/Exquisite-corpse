@@ -1,3 +1,5 @@
+# Cadavre Exquis * * *
+
 Ceci est un exercice de groupe pour se familiariser aux fonctionnalités de **Git**.
 Ce travail a pu être effectué grâce à mes collaborateurs :
 
