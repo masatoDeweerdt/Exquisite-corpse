@@ -1,6 +1,6 @@
 # Cadavre Exquis
 
-Ceci est un exercice de groupe pour se familiariser aux fonctionnalités de **Git**.
+Ceci est un exercice de groupe pour se familiariser aux fonctionnalités de **Git** à travers le [cadavre exquis](https://fr.wikipedia.org/wiki/Cadavre_exquis#:~:text=Le%20cadavre%20exquis%20est%20un,et%20Yves%20Tanguy%2C%20vers%201925.).
 Ce travail a pu être effectué grâce à mes collaborateurs :
 
 * [Noémie Uylenbroeck](https://github.com/NoemieUylenbroeck)
