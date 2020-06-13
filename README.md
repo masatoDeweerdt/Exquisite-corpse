@@ -1,3 +1,12 @@
+Ceci est un exercice de groupe pour se familiariser aux fonctionnalités de **Git**.
+Ce travail a pu être effectué grâce à mes collaborateurs :
+
+* [Noémie Uylenbroeck](https://github.com/NoemieUylenbroeck)
+* [Olivier Peeters](https://github.com/OlivierPeeters73)
+* [Phuong Dat Tran](https://github.com/phuongdattran)
+
+Un grand merci à vous ! Voici donc l'histoire :
+
 # L'offensive
 
 Les soldats se tenaient *immobile* dans les tranchées. Retenant leurs *souffles* dans le **miasme** insoutenable de cette plaine jonchée de **cadavres**.  Le **silence** pesait lourdement sur leurs épaules. 
